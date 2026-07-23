@@ -1,2 +1,3 @@
 # King-of-Slacking-Off
-Since AI is so advanced, let AI help us.
+你是不是受够了繁复的解密解压流程，无穷的套包和改后缀，来把 加入光荣的进化
+你是不是受够了繁复的解密解压流程，无穷的套包和改后缀，来把 加入光荣的进化
